@@ -1,4 +1,5 @@
-### ![literally_me](https://github.com/Cris581416/Cris581416/blob/master/a_lifestyle.jpg)
+### ![literally_me](https://github.com/Cris581416/Cris581416/blob/master/a_lifestyle.jpg)![literally_me](https://github.com/Cris581416/Cris581416/blob/master/a_lifestyle.jpg)
+
 
 <!--
 **Cris581416/Cris581416** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
